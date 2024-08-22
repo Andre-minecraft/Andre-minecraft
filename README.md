@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Andre-minecraft
+- 👀 I’m interested in Aternos
+- 🌱 I’m currently learning how to fix my aternos server
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: i made a Aternos Server
